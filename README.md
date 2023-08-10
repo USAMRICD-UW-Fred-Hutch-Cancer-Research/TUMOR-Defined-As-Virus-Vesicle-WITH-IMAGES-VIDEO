@@ -5,4 +5,4 @@ The marine parasite terminology is nematocyst. Inside each nematocyst is a phage
 
 The virus is unstable and REDOXes with Alkaline materials. Using root alkalines like nutmeg, turmeric, ginger, etc. Kills phages.
 
-Heroine addicts inject black tar meltdown from plasmodium parasite or white china from shell meltdown. We do not support these activities. Meth is pycnogonida sperm mixed with ephedrine. We cannot help these people.
+Heroine addicts inject black tar meltdown from poppy milk and plasmodium parasite or white china from shell meltdown. We do not support these activities. Meth is pycnogonida sperm mixed with ephedrine. We cannot help these people.
