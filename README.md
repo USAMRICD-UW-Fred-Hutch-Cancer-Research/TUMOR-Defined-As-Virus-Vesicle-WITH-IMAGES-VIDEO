@@ -5,3 +5,5 @@ The virus is unstable and REDOXes with Alkaline materials. Using root alkalines 
 
 # Healthcare priority for cancer removal.
 Heroine addicts inject black tar meltdown from poppy milk and plasmodium parasite or white china from shell meltdown. We do not support these activities. Meth is pycnogonida sperm mixed with ephedrine. We cannot help these people.
+
+https://www.sciencedirect.com/science/article/abs/pii/B9780123850263000097
