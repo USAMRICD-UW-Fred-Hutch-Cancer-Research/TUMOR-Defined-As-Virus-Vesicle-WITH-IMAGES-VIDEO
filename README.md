@@ -3,8 +3,8 @@ The phage virus which enters a biological host will use it's offspring to spin a
 
 The virus is unstable and REDOXes with Alkaline materials. Using root alkalines like nutmeg, turmeric, ginger, etc. kills phages.
 
-# Healthcare priority for cancer removal.
-Heroine addicts inject black tar meltdown from poppy milk and plasmodium parasite or white china from shell meltdown. We do not support these activities. Meth is pycnogonida sperm mixed with ephedrine. We cannot help these people.
-
 https://www.sciencedirect.com/science/article/abs/pii/B9780123850263000097
 https://www.researchgate.net/figure/Nematocysts-and-spirocysts-Slight-variations-in-the-distribution-of-spines-on-the_fig1_238337656/download
+
+Healthcare priority for cancer removal.
+Heroine addicts inject black tar meltdown from poppy milk and plasmodium parasite or white china from shell meltdown. We do not support these activities. Meth is pycnogonida sperm mixed with ephedrine. We cannot help these people.
